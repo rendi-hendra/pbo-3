@@ -1,1 +1,1 @@
-# Latihan Pratikum pbo 6
+# Latihan Pratikum pbo 2
